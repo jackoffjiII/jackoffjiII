@@ -3,7 +3,7 @@
  
 ![](https://komarev.com/ghpvc/?username=femIock&style=plastic&color=000000&label=_　🦴　　&base=1520710)
 
-<img src="https://i.postimg.cc/V63mgwvh/IMG-7458.png" alt="Preview" width="400">
+<img src="https://i.postimg.cc/261Q7Q7f/lifelover.jpg" alt="Preview" width="400">
 
 </p>  
 
@@ -11,7 +11,7 @@
 <div align="center">
 
 
-#1 NOWHERE2RUN & joj & xavleg fan ever 👀
+#1 fan of joj, xavleg, code orange, life lover & mayhem
 
 [info](https://rentry.co/xavleg)　　[rblx](https://www.roblox.com/users/5809349077/profile) 　[fm](https://last.fm/user/parfalt)
 
